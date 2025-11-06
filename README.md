@@ -22,6 +22,6 @@
 
 - 📄 Know about my experiences https://drive.google.com/file/d/1Lw_jldr-_cuD48irbGO-adguwogVNqFB/view?usp=sharing
 
-- ⚡ Fun fact **I think I m Romantic😜**
+
 
 
